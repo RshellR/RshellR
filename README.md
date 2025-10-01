@@ -30,7 +30,7 @@
 
 ## 🌐 Connect with Me
 
-- Website: [ronereji.dpdns.org](https://ronereji.dpdns.org)
+- Website: [ronereji.qzz.io](https://ronereji.qzz.io)
 
 ---
 
