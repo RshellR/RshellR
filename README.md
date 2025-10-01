@@ -30,7 +30,7 @@
 
 ## 🌐 Connect with Me
 
-- Website: [ronereji.qzz.io](https://ronereji.qzz.io)
+- Website: [ronee.qzz.io](https://ronee.qzz.io)
 
 ---
 
